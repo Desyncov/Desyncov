@@ -1,5 +1,5 @@
 - 👋 Hi/бунжур/Здаровчик/Вазапчик
-- ✨Ебал хохолов
-- 🎀Хохлы пидорасы
-- 🧨Слава России
-- 🎫Хохлы пошли нахуй
+- ✨https://discord.gg/y2uhjh6AQe
+- 🎀https://discord.gg/nx6RqkVntH
+- 🧨https://discord.gg/fSemXthrNF
+- 🎫 https://discord.gg/sk3d
