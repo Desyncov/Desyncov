@@ -1,5 +1,1 @@
 - 👋 Hi/бунжур/Здаровчик/Вазапчик
-- ✨https://discord.gg/y2uhjh6AQe
-- 🎀https://discord.gg/nx6RqkVntH
-- 🧨https://discord.gg/fSemXthrNF
-- 🎫 https://discord.gg/sk3d
